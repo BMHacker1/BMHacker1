@@ -15,3 +15,4 @@ Here are some ideas to get you started:
 
 
 Typing SVG](https://readme-typing-svg.herokuapp.com?color=%23F70B10&size=27&lines=😍+Assalamu+Alaikum+🖤;+👿+It's+Not+Only+Just+Name+,;It's+A+Brand+BMHacker+,,👿;Thank+You+Everyone+LvuAll)](https://git.io/typing-svg)
+https://github.com/FB-KING/FB-KING/blob/5e6d6302517179083f7f4bfd10bc377d36587559/README.md
